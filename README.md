@@ -7,7 +7,7 @@ You can find me on:
 - [Buy me a coffee](https://www.buymeacoffee.com/merukeru)
 - [Wordpress](https://medienunddesign.wordpress.com/)
 - [Adobe Stock](https://stock.adobe.com/de/contributor/205324641/merukeru)
-- [Fotolia](https://www.fotolia.com/p/205324641/partner/205324641)
+- [Depositphotos](https://depositphotos.com/de/portfolio-79391604.html?content=vector)
 - [Pinterest](https://www.pinterest.com/merukeru/)
 - [Shutterstock](https://www.shutterstock.com/g/Merukeru)
 - [Video Highlights - Movie and series list for common streaming providers](https://merukeru.github.io/video-highlights/)
